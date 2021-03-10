@@ -1,1 +1,1 @@
-# [My Github Blog](https://shk2018.github.io/)
+# [My GitHub Blog](https://shk2018.github.io/)
